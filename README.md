@@ -1,0 +1,1 @@
+# AI-adaptive-module-integrated-with-prosthetics-hand-
